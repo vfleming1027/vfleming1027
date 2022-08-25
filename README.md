@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+My name is Victoria Fleming and I am an aerospace engineering major at Iowa State University. My goal is to work with the military on special operations aircraft once I graduate. 
+In my free time, I love to watch movies and tv. I am an avid reader as well. 
+I very much enjoy any and all sports, whether it be participating or watching. 
+
+I am interested in learning all areas of aerospace, especially those that have to do with systems engineering. 
+I am from the Chicagoland area, specifically from Des Plaines which is directly adjacent to O'Hare International airport. 
