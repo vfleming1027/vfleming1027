@@ -12,4 +12,4 @@
 I `dont` understand pull requests just yet. 
 
 Link to my README in my own repo
-[https://github.com/vfleming1027](url)
+[https://github.com/vfleming1027/vfleming1027.git](url)
